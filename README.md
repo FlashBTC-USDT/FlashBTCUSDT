@@ -58,9 +58,10 @@ Note : There is no need to waste your and my time with unnecessary things🤷
 
 
 CONTACT ONLY FOR BUY Product
-Telegram- https://t.me/DemonFlasher
 
+WhatsApp: https://wa.me/qr/OP54XBBKTXXIJ1
 
+Telegram: https://t.me/flashseller_24h
 
 Software Buy ===>>
 
