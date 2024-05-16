@@ -61,7 +61,7 @@ CONTACT ONLY FOR BUY Product
 
 WhatsApp: https://wa.me/qr/OP54XBBKTXXIJ1
 
-Telegram: https://t.me/flashseller_24h
+Telegram: 
 
 Software Buy ===>>
 
